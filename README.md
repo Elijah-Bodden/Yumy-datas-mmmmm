@@ -1,2 +1,2 @@
 # Yumy datas mmmmm
-Me like eat tasty datas
+Me like tasty datas
